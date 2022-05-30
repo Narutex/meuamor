@@ -1,0 +1,2 @@
+# meuamor
+amorico
